@@ -4,3 +4,5 @@
 ## 备用网址：
 > ## **[https://ssrss.work](https://ssrss.work)**
 > ## **[https://ssrss.ga](https://ssrss.ga)**
+
+站长邮箱:[ssrss2684@gmail.com](mailto:name@email.com)
